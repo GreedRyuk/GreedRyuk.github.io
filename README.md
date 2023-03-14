@@ -1,0 +1,2 @@
+# GreedRyuk.github.io
+Curriculum
